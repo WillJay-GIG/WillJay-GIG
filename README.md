@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any educational opportunities
 - 📫 How to reach me is via this profile
 - 😄 Pronouns: He/Him
-- ⚡ Top Quote: worry and faith cannont co-exist
+- ⚡ Top Quote: worry and faith cannot co-exist
 
 <!---
 WillJay-GIG/WillJay-GIG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
